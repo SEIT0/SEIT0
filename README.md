@@ -12,4 +12,5 @@
 
 📫 Reach me through:
 [LinkedIn](https://www.linkedin.com/in/eliseotello) |
+[Telegram](t.me/SEIT0) |
 [Mail](mailto:seito99@gmail.com)
